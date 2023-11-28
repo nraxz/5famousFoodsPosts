@@ -1,6 +1,6 @@
 **5 famous Mexican dishes**
 
-![A row of tacos on a table Description automatically generated](media/58317a8941416318f69e76245b9c9ccb.jpeg)
+![Vegan tacos](media/c3768f5dfc2d7503b516a733f0bffbce.jpeg)
 
 When it comes to Mexican cuisine, the options are endless. However, there are a few dishes that stand out among the rest. Here are 5 famous Mexican dishes that you must try:
 
